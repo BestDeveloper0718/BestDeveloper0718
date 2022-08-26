@@ -1,4 +1,4 @@
-Hi there, I'm a senior Full-stack Blockchain developer 
+Hi there, I'm a senior Full-stack | Python Django, Flask | Desktop Application  | Blockchain Developer.!!! 
 
 👦🏻 **Pronouns**: He/Him
 
